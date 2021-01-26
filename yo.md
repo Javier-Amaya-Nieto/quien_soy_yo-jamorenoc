@@ -1,7 +1,7 @@
 
 ![Foto](https://i1.rgstatic.net/ii/profile.image/656773258178560-1533598355266_Q512/Jaime_Moreno-Chaparro.jpg)
 
-## JAIME 
+# JAIME 
 # MORENO-CHAPARRO
 
 *__Apasionado por la comida y lo positivo en la vida.__*
